@@ -34,8 +34,7 @@
 ## Liên hệ
 
 - **Website:** [https://dovihome.vn](https://dovihome.vn)
-- **Hotline:** 098x-xxx-xxx
-- **Email:** support@dovihome.vn
+- **Hotline:** 085-420-8888
 
 ## Tags
 
